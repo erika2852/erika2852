@@ -1,5 +1,4 @@
-## Hi there 👋
-  </br>
+### Hi there 👋
 
 ## 교육 수료  
 
